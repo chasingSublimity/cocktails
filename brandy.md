@@ -126,6 +126,18 @@ This cocktail was inspired by Stanley Burroughs’s detox cocktail, composed of 
 
 ---
 
+### Newark
+
+- 2.00 oz. --	Laird’s Bonded Apple Brandy
+- 1.00 oz. --	Carpano Antica Vermouth
+- 0.25 oz. --	Fernet Branca
+- 0.25 oz. --	Luxardo Amaro
+
+1. Stir with ice
+2. Strain into a chilled coupe
+
+---
+
 ### Nouveau Sangaree
 Liquor.com editor Noah Rothbaum asked Jim Meehan to create a wine cocktail with Beaujolais Nouveau to feature on the site. -- *Jim Meehan, Winter 2009*
 
