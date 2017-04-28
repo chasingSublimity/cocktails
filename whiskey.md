@@ -33,6 +33,20 @@
 * Serve in rocks glass with one large ice cube.
 * Garnish with large orange peel.
 
+### Cold-Brew Old Fashioned
+* 2 oz Bourbon (pref. Woodford Reserve)
+* .50 oz Chilled Cold Brew Coffee (pref. washed guatemalan, but try a natural ethopian if you're brave)
+* .50 oz Simple Syrup
+* 2 Dashes Orange Bitters
+* 1 Dash Aromatic Bitters
+* Lemon wheel for garnish
+
+---
+* Stir bourbon, coffee, simple syrup, and orange bitters with ice.
+* Serve in rocks glass with one large ice cube.
+* Dash aromatic bitters on top.
+* Garnish with lemon wheel.
+
 ### Sazerac
 * 2 oz rye
 * 1/8 oz simple syrup
